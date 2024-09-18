@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @amandaaps17
 - 👀 I’m interested in ... RN
-- 🌱 I’m currently learning ... lover
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning ... love
+- 💞️ I’m looking to collaborate on ... come back
 - 📫 How to reach me ...
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ...
