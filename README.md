@@ -2,9 +2,9 @@
 - 👀 I’m interested in ... RN
 - 🌱 I’m currently learning ... love
 - 💞️ I’m looking to collaborate on ... come back
-- 📫 How to reach me ...
+- 📫 How to reach me ... São Paulo
 - 😄 Pronouns: ... she/her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... betrayl
 
 <!---
 amandaaps17/amandaaps17 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
